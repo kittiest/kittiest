@@ -1,17 +1,42 @@
-<p align="center">
-  <img src="ezgif-1d1096692ebef385.gif" width="600">
+<img src="https://files.catbox.moe/3062mv.png" width="250" align="right">
+
+<table><tr><td>
+<p aligne="left">
+ ⠀⠀⠀ ⠀ <img src="ezgif-77f4d85226f2e002.gif"> ${\textsf{\color{#ffffff}ㅤㅤㅤ ׂ   kittyㅤㅤ}}$ ${\textsf{\color{#FFF5FE} ᵒʳ }}$ ${\textsf{\color{#F9DBF6}ㅤㅤcupㅤ⠀ㅤ𓏼 }}$
 </p>
+  
 
-<p align="center">
-  <img src="jne1qp.gif"> ${\textsf{\color{#4760E1}ㅤㅤㅤ ׂ   𝒦𝐢𝐭𝐭𝐲ㅤㅤ}}$ ${\textsf{\color{#EDE9E3} 𝐨𝐫 }}$ ${\textsf{\color{#4DB6D8}ㅤㅤ𝒞𝐮𝐩ㅤㅤ❤︎︪𓏼 }}$
+ <p align="left">
+${\textsf{\color{#F2CFEC}⠀⠀𓎟𓎟⠀⠀  ⠀he   ⠀⠀}}$ ${\textsf{\color{#E7BEDE}/  ⠀ ⠀they}}$ ${\textsf{\color{#D9ADD4}  ⠀ ⠀/   ⠀⠀kittyㅤ⠀⠀}}$ <img src="IMG-1847.gif">۫ ׅ
+ </p>
 
-<p align="center">
-${\textsf{\color{#0E92C3}ㅤ۫ㅤㅤ𝐻𝐞 ﾉ ა𝐡𝐞 ﾉ 𝐤𝐢𝐭𝐭𝐲ㅤ ㅤ}}$ <img src="tumblr_18367bbec02d38fcbd7f61e89c27787c_caaaeb4b_75 (1).gif"> ${\textsf{\color{#ffffff}◜ ㅤㅤ𝐇𝐕𝐘 𝐜𝐮𝐝𝐜𝐨𝐦𝐟ㅤㅤ}}$
+ <p align="left">
+${\textsf{\color{#A883B1}⠀꒰⠀darkshipper⠀⠀⠀,⠀⠀⠀}}$ ${\textsf{\color{#9978A8}proshipper}}$ ${\textsf{\color{#625275}⠀⠀⠀,⠀⠀⠀profic⠀꒱⠀}}$ 
+ </p>
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://kittiest.atabook.org">
+    <img src="Sans titre 318_20261107203649.png" width="150">
+  </a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://pawfecttt.straw.page">
+    <img src="Sans titre 318_20261107204024.png" width="150">
+  </a>
+
+ <p align="left">
+${\textsf{\color{#ffffff}⠀⠀⠀⠀⠀⠀⠀⠀click⠀⠀⠀}}$ ${\textsf{\color{#E7BEDE}on⠀⠀⠀the⠀⠀⠀}}$ ${\textsf{\color{#ffffff}images}}$ 
+ </p>
+
+</td></tr></table>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<a href="https://cupfettii.atabook.org/"> <img src="https://img.shields.io/badge/新book-58BAD9?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
-<a href="https://pawfecttt.straw.page/"> <img src="https://img.shields.io/badge/strawpage-6570DC?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
-<a href="https://kittspaws.straw.page/"> <img src="https://img.shields.io/badge/infos-243BA2?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
+<details>
+  <summary>
+    <img src="Tumblr_l_1571196071682764.gif" alt="Show details" width="420">
+  </summary>
+ 
+  <img src="Sans titre 271_20260928164833.png" width="380"><br>  
+  <img src="Sans titre 271_20260928164837.png" width="380">
 
-<p align="center">
-${\textsf{\color{#4760E1} wip ok ill continue later,, hi moe ilyu /p}}$
+  hi hallo hai moe ily ok? /p
+</details>
